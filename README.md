@@ -1,0 +1,1 @@
+# vogsphere-vgs.42.us.org-intra-2018-activities-piscine_c_day_00-rujoshi
